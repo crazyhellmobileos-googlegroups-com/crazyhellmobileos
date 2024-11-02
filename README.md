@@ -1,0 +1,2 @@
+# crazyhellmobileos
+crazyhellmobileos@googlegroups.com
